@@ -12,7 +12,7 @@
 	
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<sup><sub>[strawpage](https://edward-hyde.straw.page/)</sub></sup> ![](https://64.media.tumblr.com/9871b55f370c461d391ed5382119ebc4/1a2a861156920619-0f/s75x75_c1/932bf6e11199ac93829cca94f5c279fa86c7caee.gifv) <sup><sub>[rentry](https://rentry.co/edwardhyde-)</sub></sup> ![](https://64.media.tumblr.com/9871b55f370c461d391ed5382119ebc4/1a2a861156920619-0f/s75x75_c1/932bf6e11199ac93829cca94f5c279fa86c7caee.gifv) <sup><sub>[新book](https://hadestown.atabook.org/)</sub></sup> ![](https://64.media.tumblr.com/9871b55f370c461d391ed5382119ebc4/1a2a861156920619-0f/s75x75_c1/932bf6e11199ac93829cca94f5c279fa86c7caee.gifv) <sup><sub>[prns.page](https://en.pronouns.page/@edward-hyde)</sub>
 ⠀⠀⠀⠀⠀⠀⠀⠀
-$${\color{#ff0000}massive \space myslovitz \space fan}$$
+$${\color{#ff0000}massive \space ghost \space fan}$$
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rzt2amg34rzeq4p7bipamyjlca&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
   </a>
