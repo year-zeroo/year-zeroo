@@ -8,18 +8,16 @@ $${\color{#ff0000}got \space satanized \space in \space 29.08.2026<3 }$$ ![](htt
 
 ![](https://64.media.tumblr.com/9334c2398611f183667e1debdb3c2f40/530379561c258f8a-42/s100x200/39f901bf462b2d0fb36ceb8caffccfe05fd70731.gifv)
 
-<table class="about-table">
-  <tr>
-    <td>
-     $${\color{#ff0000}call \space me \space august \space or \space zero(pref).}$$<br>
-$${\color{#ff0000}i \space use \space they/them \space pronouns.}$$<br>
-$${\color{#ff0000}i \space have \space diagnosed \space bipolar.}$$<br>
-$${\color{#ff0000}please \space do \space NOT \space copy}$$<br>
-$${\color{#ff0000}my \space ponies. c+h \space always, }$$<br>
-$${\color{#ff0000}i \space love \space cuddles.}$$ <br>
-  </tr>
-</td>
-</table> 
+
+${\textsf{\color{#ff0000}august or zero}}$</td>
+
+${\textsf{\color{#ff0000}they / them}}$
+
+${\textsf{\color{#ff0000}diagnosed bipolar}}$
+
+${\textsf{\color{#ff0000}do NOT copy my ponies}}$
+
+${\textsf{\color{#ff0000}c+h always i love cuddles}}$
 
 ![](https://64.media.tumblr.com/a53e61cb1b7031601ae2952e6661709f/2649d051334f295a-17/s400x600/3a116801157892486a8470e9fb7d9d3013c61c28.pnj)
 
