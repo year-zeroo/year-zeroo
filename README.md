@@ -10,7 +10,7 @@ $${\color{#ff0000} - \space bats \space and \space rats \space woahhhhh}$$⠀⠀
 ⠀⠀⠀![](https://64.media.tumblr.com/460f85baf5753749ede491fbe5f85e53/a7fcf3f729a8a977-14/s75x75_c1/3b4ab6823d07327b214d96309d91b9aaab6b5a44.gifv)⠀⠀ 
 $${\color{#ff0000} - \space call \space me \space august \space or \space hyde}$$⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀![](https://64.media.tumblr.com/460f85baf5753749ede491fbe5f85e53/a7fcf3f729a8a977-14/s75x75_c1/3b4ab6823d07327b214d96309d91b9aaab6b5a44.gifv) $${\color{#ff0000} - \space prns \space they / them \space pref.}$$⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀![](https://64.media.tumblr.com/460f85baf5753749ede491fbe5f85e53/a7fcf3f729a8a977-14/s75x75_c1/3b4ab6823d07327b214d96309d91b9aaab6b5a44.gifv) $${\color{#ff0000} - \space do \space NOT \space copy \space my \space ponies}$$⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀![](https://64.media.tumblr.com/460f85baf5753749ede491fbe5f85e53/a7fcf3f729a8a977-14/s75x75_c1/3b4ab6823d07327b214d96309d91b9aaab6b5a44.gifv) $${\color{#ff0000} - \space do \space NOT \space copy \space my \space ponies \space cuddles \space always!<3}$$⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
 
