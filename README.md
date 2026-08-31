@@ -3,7 +3,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://i.pinimg.com/1200x/05/7e/7b/057e7bbe7a25abe1c3e0c236648e5e53.jpg)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Typing SVG](https://readme-typing-svg.demolab.com?font=Noto+Serif&size=10&pause=1000&color=F70000&width=435&lines=Blasphemy%2C+heresy!!!;Save+me%2C+from+the+bottom+of+my+heart+I+know;I'm+satanized+I'm+satanized+I'm+satanized;An+nescitis+quoniam+membra+vestra;Templum+est+Spiritus+Sancti;Qui+in+vobis+est;Quem+habetis+a+Deo%3F;Et+non+estis+vestri)
-$${\color{#ff0000}got \space satanized \space in \space 29.08.2026<3 }$$
+$${\color{#ff0000}got \space satanized \space in \space 29.08.2026<3 }$$ ![](https://64.media.tumblr.com/0d02d593b88c02beaabcdfd2b284bff7/a7fcf3f729a8a977-0e/s75x75_c1/41f4ad64a9ade9320fe59dd4b8bc9d3361d27f33.gifv)
 	
 
 
