@@ -1,6 +1,6 @@
 
 	
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://i.pinimg.com/736x/be/13/4c/be134c50091516e3edc8f3bbdacd1378.jpg)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://64.media.tumblr.com/ccbe6dd9a4ac79359b7c9d44ea9f11a3/b8da411d70150baf-de/s400x600/bad4ce95cce9f89c543efed5b9e7a3055bcc2416.gifv)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Typing SVG](https://readme-typing-svg.demolab.com?font=Noto+Serif&size=30&pause=1000&color=A7A7A7&width=435&lines=Come+together;Together+as+one;Come+together;+For+Lucifer's+son)
 
