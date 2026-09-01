@@ -2,7 +2,7 @@
 	
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://64.media.tumblr.com/ccbe6dd9a4ac79359b7c9d44ea9f11a3/b8da411d70150baf-de/s400x600/bad4ce95cce9f89c543efed5b9e7a3055bcc2416.gifv)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Typing SVG](https://readme-typing-svg.demolab.com?font=Noto+Serif&size=30&pause=1000&color=A7A7A7&width=435&lines=Come+together;Together+as+one;Come+together;+For+Lucifer's+son)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Typing SVG](https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&pause=1000&color=A7A7A7&width=435&lines=Come+together;Together+as+one;Come+together;+For+Lucifer's+son)
 
 
 ![](https://64.media.tumblr.com/0d02d593b88c02beaabcdfd2b284bff7/a7fcf3f729a8a977-0e/s75x75_c1/41f4ad64a9ade9320fe59dd4b8bc9d3361d27f33.gifv) $${\color{#464646}got \space satanized \space in \space 29.08.2026<3 }$$ 
