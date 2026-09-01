@@ -21,4 +21,4 @@ ${\textsf{\color{#9b9b9b}c+h always i love cuddles}}$
 ${\textsf{\color{#464646}basic dni + ex friends}}$
 
 
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rzt2amg34rzeq4p7bipamyjlca&cover_image=true&theme=novatorem&show_offline=false&background_color=464646&interchange=false&profanity=false&hide_remaster=false&bar_color=0a0a0a&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ 
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rzt2amg34rzeq4p7bipamyjlca&cover_image=true&theme=novatorem&show_offline=false&background_color=464646&interchange=false&profanity=false&hide_remaster=false&bar_color=9b9b9b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ 
