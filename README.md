@@ -23,8 +23,7 @@ ${\textsf{\color{#464646}basic dni,selfdiagnose + ex friends}}$
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ 
 
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rzt2amg34rzeq4p7bipamyjlca&cover_image=true&theme=natemoo-re&show_offline=true&background_color=9b9b9b&interchange=false&profanity=false&hide_remaster=false&bar_color=9b9b9b&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31rzt2amg34rzeq4p7bipamyjlca&redirect=true)  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ 
-
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ 
 
 
 
