@@ -18,7 +18,7 @@ ${\textsf{\color{#464646}do NOT copy my ponies}}$
 
 ${\textsf{\color{#9b9b9b}c+h always i love cuddles}}$
 
-${\textsf{\color{#464646}basic dni,selfdiagnose + ex friends}}$
+
 
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ 
