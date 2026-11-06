@@ -12,7 +12,7 @@ ${\textsf{\color{#9b9b9b}august or zero}}$</td>
 
 ${\textsf{\color{#464646}they / them}}$
 
-${\textsf{\color{#9b9b9b}diagnosed bipolar}}$
+
 
 ${\textsf{\color{#464646}do NOT copy my ponies}}$
 
